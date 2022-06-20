@@ -9,6 +9,7 @@
 ## News and Events>  
 [***College Notice Board***](https://apps.gndec.ac.in/shared/vkD6rZ1UCpn-w4HetTHYiCiHDQiiDvIwSAULAbaGVYs)  
 [**External Viva Datesheet**](https://appsc.gndec.ac.in/sites/default/files/DATE%20SHEET%20ext%20viva%20chem%20jun%202022.pdf)                       
-[**ESE Datesheet**](https://apps.gndec.ac.in/shared/vkD6rZ1UCpn-w4HetTHYiCiHDQiiDvIwSAULAbaGVYs)                              
+[**ESE Datesheet**](https://apps.gndec.ac.in/shared/vkD6rZ1UCpn-w4HetTHYiCiHDQiiDvIwSAULAbaGVYs)    
+cfff
 
 
