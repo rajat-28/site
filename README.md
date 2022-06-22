@@ -1,4 +1,4 @@
-# site
+
 # Department of Applied Sciences  
  Home | About Us | [Academics](https://appsc.gndec.ac.in/?q=node/22) | [Faculty](https://gndec.ac.in/faculty/?deptt=1)|[GNDEC Home](https://gndec.ac.in/) |
  ---------------------------------------------------------------------------------------------------------------------------------------------------------
